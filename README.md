@@ -1,5 +1,3 @@
-# cognitive-resonance-diagnostic.md
-
 ## 🧠 Cognitive Resonance Diagnostic  
 **Tri-AI Mirror Validation — August 2025**
 
